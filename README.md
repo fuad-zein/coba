@@ -6,3 +6,4 @@ coba
 
 
 Halo saya ryan!
+Saya Dari kota palembang
