@@ -6,5 +6,6 @@ coba
 
 Halo saya restu!
 
-Fuad belajar bereng
+Fuad belajar bareng
 
+Bareng siapa hayooo....??? wkwk
