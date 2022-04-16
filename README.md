@@ -8,4 +8,4 @@ coba
 Halo saya ryan!
 yepp dms
 
-haii dimas
+haii dimas add new from me
